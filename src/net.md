@@ -26,7 +26,7 @@
 #### :sparkling_heart:坚持原创不易，给博主加鸡腿 ####
 
 
-如果要买阿里云服务的，不妨通过这个链接去购买(可以领劵，**有优惠**！)
+如果要买阿里云服务的， 不妨通过这个链接去购买(可以领劵，**有优惠**！)
 
 - https://promotion.aliyun.com/ntms/yunparter/invite.html?userCode=pfn5xpli
 
